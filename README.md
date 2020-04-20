@@ -2,7 +2,7 @@
 
 **Resources**
 
-[Slides](https://docs.google.com/presentation/d/1dVamos7677WPgAJmsHdA0Yam-OWhlac8y8d6DiJEkD8/edit?usp=sharing)
+[Slides](https://docs.google.com/presentation/d/1dVamos7677WPgAJmsHdA0Yam-OWhlac8y8d6DiJEkD8/edit?usp=sharing)<br>
 [Exit ticket](https://forms.gle/VB5i4QiUWFWtSTSe8)
 
 **Learning goals:**
